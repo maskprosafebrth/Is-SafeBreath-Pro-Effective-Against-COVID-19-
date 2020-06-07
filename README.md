@@ -1,0 +1,2 @@
+# Is-SafeBreath-Pro-Effective-Against-COVID-19-
+Safebreath Pro advertises using nanotechnology to filter out air contaminants that are larger than PM 2.5. But what does that mean?PM 2.5 is basically a size rating for Particulate Matter that is less than 2.5 micrometers – around 3% the diameter of a human hair. As you can imagine, this is really small, in fact, it is so small that it can’t be seen without the help of an electron microscope.Click Here  https://www.marketwatch.com/press-release/safebreath-pro-reviews-updated-2020-n95-mask-price-benefits-2020-04-07
